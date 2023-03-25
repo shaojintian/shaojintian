@@ -6,6 +6,5 @@
 - 🤔 I’m looking for help with learning english, engaging in MIT CS Courses.
 - 💬 Ask me about developer career path.
 - 📫 How to reach me: wechat:night_see
-;- 😄 Pronouns: ...
-;- ⚡ Fun fact: ...
+
 
