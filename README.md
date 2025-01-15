@@ -7,6 +7,6 @@
 - 💬 Ask me about ANY career opportunities.
 - 📫 How to reach me:shaojintian99 AT gmail.com
 
-Chinese Young Entrepreneurs Are CHANGING THIS WORLD!
+Chinese Young Entrepreneurs are CHANGING THIS WORLD!
 
 
