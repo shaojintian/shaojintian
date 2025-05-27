@@ -7,6 +7,6 @@
 - 💬 Ask me about ANY career opportunities.
 - 📫 How to reach me:shaojintian99 AT gmail.com
 
-Chinese Young Entrepreneurs are CHANGING THIS WORLD!
+Generative AI # Towards AGI
 
 
